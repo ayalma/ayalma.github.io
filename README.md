@@ -1,1 +1,0 @@
-# ayalma.github.io
